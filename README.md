@@ -1,0 +1,1 @@
+# UPT.-SMAN-10-SIDRAP
